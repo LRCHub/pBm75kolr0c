@@ -1,4 +1,4 @@
-# SPYAIR – RAGE OF DUST - New Version -
+# SPYAIR – RAGE OF DUST - New Version -VideoAudio
 
 > **歌詞登録ステータス：同期歌詞あり**
 
